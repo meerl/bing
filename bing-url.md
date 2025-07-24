@@ -1,3 +1,5 @@
+20250724 | [Family of ashy woodswallows perched on a branch in Thailand (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.AshyWoodswallow_EN-US7005770998_UHD.jpg)
+
 20250723 | [Vatican City with St. Peter's Basilica (© RudyBalasko/Getty Images)](https://cn.bing.com/th?id=OHR.VaticanCity_EN-US5915643866_UHD.jpg)
 
 20250720 | [The moon's surface photographed through a telescope (© Sergey Kuznetsov/Getty Images)](https://cn.bing.com/th?id=OHR.BigMoon_EN-US5436003142_UHD.jpg)
