@@ -1,3 +1,5 @@
+20251220 | [Christmas star lanterns, Germany (© artas/Getty Images)](https://cn.bing.com/th?id=OHR.StarLanterns_EN-US5419993556_UHD.jpg)
+
 20251219 | [Snow-covered landscape at Bormio, Lombardy, Italy (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.BormioItaly_EN-US5324526286_UHD.jpg)
 
 20251217 | [Eurasian red squirrel in Northumberland, England (© Michael_Conrad/Getty Images)](https://cn.bing.com/th?id=OHR.FrostySquirrel_EN-US5169660143_UHD.jpg)
