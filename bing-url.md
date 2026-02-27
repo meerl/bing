@@ -1,3 +1,5 @@
+20260227 | [Polar bear cub walking across pack ice, Arctic National Wildlife Refuge, Alaska (© Steven Kazlowski/naturepl.com)](https://cn.bing.com/th?id=OHR.ArcitcCub_EN-US2529097123_UHD.jpg)
+
 20260225 | [Ice cave in the Mendenhall Glacier, Alaska (© Designpics/Adobe Stock)](https://cn.bing.com/th?id=OHR.MendenhallCave_EN-US2807496139_UHD.jpg)
 
 20260224 | [Water lilies at Grand Cenote, Tulum, Mexico (© Christian Vizl/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.TulumLilies_EN-US2766347819_UHD.jpg)
