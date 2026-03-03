@@ -1,3 +1,5 @@
+20260303 | [African elephant calf playing with its mother, Masai Mara National Reserve, Kenya (© Denis-Huot/naturepl.com)](https://cn.bing.com/th?id=OHR.BabyElephant_EN-US3103670102_UHD.jpg)
+
 20260301 | [Suffragette celebrations, August 27, 1920, New York City (© Keystone/Hulton Archive/Getty Images)](https://cn.bing.com/th?id=OHR.SuffragettesNY_EN-US2900175138_UHD.jpg)
 
 20260228 | [Olo'upena Falls, island of Moloka'i, Hawaii (© Andrew Aylett/Getty Images)](https://cn.bing.com/th?id=OHR.OloupenaFalls_EN-US2862358887_UHD.jpg)
